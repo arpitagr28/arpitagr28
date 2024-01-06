@@ -4,6 +4,6 @@
 <br>
 📊 Transforming Data into actionable and Useful insights through codes.
 <br>
-📫 You can contact me by email: @028arpit@gmail.com
+📫 You can contact me by email: arpitiitkgp28@gmail.com
 <br>
 📈 Explore my latest projects below!
